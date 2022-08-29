@@ -2,7 +2,8 @@
 
 <img align='right' src='https://user-images.githubusercontent.com/5713670/87202985-820dcb80-c2b6-11ea-9f56-7ec461c497c3.gif' width='200"'>
 
-[![Telegram Badge](https://img.shields.io/badge/-@DickyS-1ca0f1?style=flat-square&labelColor=1ca0f1&logo=telegram&logoColor=white&link=https://twitter.com/Harshkhatri24)](https://t.me/DickyStn) [![Linkedin Badge](https://img.shields.io/badge/-Dicky-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/dicky-setiono/)](https://www.linkedin.com/in/dicky-setiono/) [![Medium Badge](https://img.shields.io/badge/-@Dicky-03a57a?style=flat-square&labelColor=000000&logo=Medium&link=https://medium.com/@dsetiono1/)](https://medium.com/@dsetiono1)
-[![Gmail Badge](https://img.shields.io/badge/-infodickydiko@gmail.com-c14438?style=flat-square&logo=Gmail&logoColor=white&link=mailto:infodickydiko@gmail.com)](mailto:infodickydiko@gmail.com)
+[![Telegram Badge](https://img.shields.io/badge/-@DickyS-1ca0f1?style=flat-square&labelColor=1ca0f1&logo=telegram&logoColor=white&link=https://twitter.com/Harshkhatri24)](https://t.me/SuckingSugar) [![Linkedin Badge](https://img.shields.io/badge/-Dicky-blue?style=flat-square&logo=Linkedin&logoColor=white&link=https://www.linkedin.com/in/dicky-setiono/)](https://www.linkedin.com/in/dicky-setiono/) 
 
-I am Dicky Setiono 😃. I am from Tegal, Indonesia and currently working freelancer. I love to explore and learn about new things.
+<p><img src="https://github-readme-stats.vercel.app/api?username=mazipan&show_icons=true&theme=nightowl&locale=en" alt="Dicky1" /></p>
+
+<p><img align="left" src="https://github-readme-stats.vercel.app/api/top-langs?username=mazipan&show_icons=true&locale=en&layout=compact&theme=nightowl" alt="mazipan" /></p>
